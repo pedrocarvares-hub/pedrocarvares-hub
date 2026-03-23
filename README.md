@@ -9,3 +9,5 @@ Vou mandar um presente pra Cidade Ocidental dia 05 de Dezembro
 
 Dps eu vejo se visito sua igreja mn
 Endereço: R. G-1, super, quadra 13 - Recanto das Garcas, Cidade Ocidental - GO, 72880-000
+
+PARA DE CRIAR MENSAGEM PRA SUA NAMORADA PELO CHATGPT SEJA VOCÊ CARA PELO AMOR DE DEUS, NÃO SABE OQ FLR P ELA NN??? SEJA SINCERO O NAMORADO DELA É VOCÊ NÃO O CHAT.
